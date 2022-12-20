@@ -2,7 +2,8 @@
 
 AtmaNirvaana, a site for mental health highlights its importance, the mission is to empower people with the information and insight they need to improve their mental health and make healthy changes. We offer you the guidance and encouragement you need to find hope, get motivated, take charge of your mental health, and feel better. We focus on what you need to know to understand the challenges you face, make informed decisions, and take positive steps.
 I don’t view mental health as a money-making opportunity or answer to corporate interests. The result: integrity you can trust.
-Start improving your mental health and wellness today. AtmaNirvaana shows you how.
+Start improving your mental health and wellness today. AtmaNirvaana shows you how. 
+Link: https://atma-nirvaana-2901.on.fleek.co/index.html
 <img width="1432" alt="Screenshot 2022-11-27 at 7 22 29 PM" src="https://user-images.githubusercontent.com/103413125/204138987-a43554e6-3a8a-4d48-a7d6-767a2c025875.png">
 <img width="1432" alt="Screenshot 2022-11-27 at 7 22 38 PM" src="https://user-images.githubusercontent.com/103413125/204138998-31415a63-848e-4f31-b6e6-c3816924c775.png">
 The exclusive features of this website are- an about section, inspirational blogs to instill hope in the hearts of the readers, emergency helpline numbers, a soothing music section to calm disturbed minds, a meditation section which provides guided meditation videos for emotional stability, top productivity tips in the productivity section, memes section for a hearty laugh, and finally a contact section to get in touch!😄
